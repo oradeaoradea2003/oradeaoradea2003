@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oradeaoradea2003 mayBE
 - 👀 I’m interested in ...Hacking ded
-- 🌱 I’m currently learning ...githu.com
+- 🌱 I’m currently learning ...github.com
 - 💞️ I’m looking to collaborate on ...Lucid Dreamings
 - 📫 How to reach me ...+40774538083  whatsup
 
